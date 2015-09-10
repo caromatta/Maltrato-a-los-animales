@@ -14,6 +14,11 @@ La mayoria de  los niños jóvenes atraviesan una etapa de crueldad “inocente�
 Debido a que el maltrato hacia los animales constituye un aviso sobre la posible existencia de otras formas de violencia y que la malicia a seres capaces de experimentar dolor y estrés es inaceptable en una sociedad civilizada."Un asesino, inicialmente comienza matando y torturando animales cuando es menor de edad"
 
 
-El maltrato hacia los animales es reflejo de una sociedad violenta
+¿Que impacto tiene en la sociedad el maltrato animal?
 
 Una sociedad que cuida a los animales, que respeta sus derechos, refleja su cultura, su idiosincrasia, su consciencia”.Un individuo que lastima a un animal, es un generador de violencia social en potencia, pues si no respeta la vida de un animal, difícilmente respetará la vida de otra persona.
+
+El maltrato animal viene de la ignorancia que la persona tiene hacia lo que realmente es el animal. Es una falta de valoración al animal. Muchas de las personas son así  por maltratos que sufrieron o episodios que vieron en sus familiares o su entrono ya sea hacia otra persona o hacia un animal mismo.
+El maltrato animal causa los mismos daños que le causa el maltrato a una persona. El ser rechazados, abandonados, lastimados y demás también crea en los animales miedo, desconfianza y muchos de ellos se vuelven agresivos. 
+
+La persona que maltrata a un animal no sabe el gran corazón que esta lastimando. Y ojala muchas personas fueran animales y no lo que son.  El maltrato animal es algo que no se puede aceptar en ningún país, es como maltratar a un niño, los animales también necesitan cariño.El maltrato  animal es una diversión o un pasatiempo ademas las peleas de perros que organizan es un simple negocio nada mas esta bien de que un perrito se pueda defender de otros perros pero llevarlos y encerrarlos hasta que se maten porque  ellos simplemente están reaccionando a la situación que están pasando y luego q se vuelven un poco locos o un poco salvajes entonces ahí si les culpan a los animales no a los imbéciles de los dueños que hacen que el animal se convierta en un animal agresivo.
