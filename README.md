@@ -5,4 +5,5 @@ El maltrato animal es, a la vez, un factor que predispone a la violencia social 
 
 La violencia es “un acto intencional que puede ser único o recurrente y cíclico, dirigido a dominar, controlar, agredir o lastimar a otros. Casi siempre es ejercida por las personas de mayor jerarquía, es decir, las que tienen el poder en una relación, pero también se puede ejercer sobre objetos, animales o contra sí mismo”.
 
-La violencia inhibe el desarrollo de las personas y puede causar daños irreversibles, adopta diferentes formas de expresión que pueden variar desde una ofensa verbal hasta el homicidio.
+ los animales comprende una gama de comportamientos que causan dolor innecesario, sufrimiento o estrés al animal, que van desde la negligencia en los cuidados básicos hasta el asesinato malicioso e intencional.
+
