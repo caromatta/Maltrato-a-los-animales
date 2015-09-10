@@ -1,4 +1,4 @@
-# Maltrato a los animales
+# Maltrato a los Animales
 concientizar a la comunidad sobre el respeto, el trato y la importancia que tienen los animales en la sociedad.
 
 El maltrato animal es, a la vez, un factor que predispone a la violencia social y, al mismo tiempo, una consecuencia de la misma. Forma parte de la cascada de la violencia que nos va alcanzando a todos como individuos y como sociedad.
