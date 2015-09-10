@@ -22,3 +22,8 @@ El maltrato animal viene de la ignorancia que la persona tiene hacia lo que real
 El maltrato animal causa los mismos daños que le causa el maltrato a una persona. El ser rechazados, abandonados, lastimados y demás también crea en los animales miedo, desconfianza y muchos de ellos se vuelven agresivos. 
 
 La persona que maltrata a un animal no sabe el gran corazón que esta lastimando. Y ojala muchas personas fueran animales y no lo que son.  El maltrato animal es algo que no se puede aceptar en ningún país, es como maltratar a un niño, los animales también necesitan cariño.El maltrato  animal es una diversión o un pasatiempo ademas las peleas de perros que organizan es un simple negocio nada mas esta bien de que un perrito se pueda defender de otros perros pero llevarlos y encerrarlos hasta que se maten porque  ellos simplemente están reaccionando a la situación que están pasando y luego q se vuelven un poco locos o un poco salvajes entonces ahí si les culpan a los animales no a los imbéciles de los dueños que hacen que el animal se convierta en un animal agresivo.
+
+
+¿Por qué defender a los animales?
+Muchas veces se piensa que las personas que defienden a los animales, son personas sentimentales y sin fundamentos que defienden a sus gatitos y perritos y que no piensan en el sufrimiento humano.
+La defensa de los animales se basa en un principio de tolerancia y respeto hacia la vida tanto humana como no humana.
