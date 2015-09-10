@@ -12,3 +12,8 @@ La violencia es “un acto intencional que puede ser único o recurrente y cícl
 La mayoria de  los niños jóvenes atraviesan una etapa de crueldad “inocente”, en la cuál pueden lastimar insectos u otros animales pequeños en el proceso de explorar el mundo y descubrir sus habilidades. La mayoría de los niños, sin embargo, con la guía adecuada de los padres y profesores, se tornan sensibles al hecho de que los animales pueden sentir dolor y sufrir. Algunos, sin embargo, parecen quedarse encerrados en un patrón de crueldad que generalmente va escalando con la edad y se manifiesta en la adultez en la forma de violencia hacia las personas.
 
 Debido a que el maltrato hacia los animales constituye un aviso sobre la posible existencia de otras formas de violencia y que la malicia a seres capaces de experimentar dolor y estrés es inaceptable en una sociedad civilizada."Un asesino, inicialmente comienza matando y torturando animales cuando es menor de edad"
+
+
+El maltrato hacia los animales es reflejo de una sociedad violenta
+
+Una sociedad que cuida a los animales, que respeta sus derechos, refleja su cultura, su idiosincrasia, su consciencia”.Un individuo que lastima a un animal, es un generador de violencia social en potencia, pues si no respeta la vida de un animal, difícilmente respetará la vida de otra persona.
