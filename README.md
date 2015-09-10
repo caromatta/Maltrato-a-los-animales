@@ -25,5 +25,6 @@ La persona que maltrata a un animal no sabe el gran corazón que esta lastimando
 
 
 ¿Por qué defender a los animales?
+
 Muchas veces se piensa que las personas que defienden a los animales, son personas sentimentales y sin fundamentos que defienden a sus gatitos y perritos y que no piensan en el sufrimiento humano.
 La defensa de los animales se basa en un principio de tolerancia y respeto hacia la vida tanto humana como no humana.
